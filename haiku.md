@@ -6,9 +6,9 @@ water's sound
 
 
 
-
-
-
+GitBash and Python
+We train for our unknown jobs
+CitiBank is next
 
 
 Autumn Harvest, Bountiful, Harvested
